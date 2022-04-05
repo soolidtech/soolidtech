@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @soolidtech
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+👋 Please feel free to contact us ! https://soolid.tech
+
+🧠 Currently working on https://delais-abusifs.fr
